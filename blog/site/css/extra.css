@@ -1,3 +1,6 @@
-.md-source__facts{
-    display: none;
+em {
+  letter-spacing: 0.0475em;
+}
+.md-source__facts {
+  display: none;
 }
