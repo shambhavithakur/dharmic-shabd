@@ -4,3 +4,7 @@ em {
 .md-source__facts {
   display: none;
 }
+.md-typeset .headerlink {
+  display: inline;
+  margin-left: 0;
+}
