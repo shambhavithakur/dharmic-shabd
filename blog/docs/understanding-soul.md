@@ -1,8 +1,8 @@
-# Understanding the&nbsp;Soul
+# Understanding the&nbsp;Soul&nbsp;
 
 ## What the Soul Really&nbsp;Is
 
-The soul is sentient spiritual energy. Just as matter in the perceptible universe is neither created nor destroyed, the soul also is neither created nor destroyed. Unlike matter, however, the soul itself doesn't change form. It is imperceptible and formless and can be everywhere in physical space at the same time.
+The soul is sentient spiritual energy. Just as matter in the perceptible universe is neither created nor destroyed, the soul also is neither created nor destroyed. Unlike matter, however, the soul itself doesn't change form. It is imperceptible and formless and can be everywhere in physical space at the same&nbsp;time.
 
 The soul transcends the universe and creation as we know them and is far more knowledgeable and vast than a human mind. The soul has immense knowledge because it is a constant learner. It keeps improving and evolving and ascends the higher, metaphysical planes of the universe and beyond until it reaches the ultimate goal—the ultimate&nbsp;truth.
 
